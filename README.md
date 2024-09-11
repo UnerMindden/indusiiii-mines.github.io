@@ -1,1 +1,1 @@
-# indusiiii-mines.github.io
+# minesind
